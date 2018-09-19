@@ -36,8 +36,8 @@ I'm so excited to get to know you and work together to make our once in a lifeti
 ![](Screen Shot 2018-09-18 at 2.07.36 AM.png)
 ![](Screen Shot 2018-09-19 at 1.35.23 AM.png)
 ![](Screen Shot 2018-09-19 at 1.36.14 AM.png)
-![](Screen Shot 2018-09-16 at 9.23.17 PM.png)
-
+![](Screen Shot 2018-09-19 at 1.39.39 AM.png)
+![](Screen Shot 2018-09-19 at 1.40.10 AM.png)
 ![](Screen Shot 2018-09-18 at 2.09.57 AM.png)
 
 
