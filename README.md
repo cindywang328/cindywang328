@@ -12,6 +12,6 @@ I'm so excited to get to know you and work together to make our once in a lifeti
 
 Mr. Goose is watching you... especially on September 20-21.
 
-https://tinyurl.com/mathsocvote
+[https://tinyurl.com/mathsocvote](Vote Now!)
 
 
