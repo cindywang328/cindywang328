@@ -30,7 +30,7 @@ I'm so excited to get to know you and work together to make our once in a lifeti
 
 
 
-### [Vote Now!](https://tinyurl.com/mathsocvote)
+# [Vote Now!](https://tinyurl.com/mathsocvote)
 
 ## Memes!
 ![](Screen Shot 2018-09-18 at 2.07.36 AM.png)
